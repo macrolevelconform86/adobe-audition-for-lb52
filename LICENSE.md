@@ -1,4 +1,4 @@
-# 
+# new Adobe Audition for macOS Addon | version-history + batch-rendering offers the most advanced Adobe Audition for macOS addon, with version-history and batch-rendering. Ideal for
 
 
 
